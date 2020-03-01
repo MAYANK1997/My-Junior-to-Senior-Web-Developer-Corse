@@ -1,1 +1,1 @@
-# My-Junior-to-Senior-Web-Developer-Corse
+# My-Junior-to-Senior-Web-Developer-Course
